@@ -1,2 +1,1 @@
-<img width="1000" height="1000" src="https://github.com/user-attachments/assets/70a33205-b00b-40ee-a286-a8a723ac24ec"/>
-OGHHHH YMYY GOD BRUH
+ <img width="200px" src="https://files.catbox.moe/gyucf5.png"> <br> <b>clover /eden</b> <br> minor (16-) <br> pw/did + autism <br> ![](https://komarev.com/ghpvc/?username=disorderism&color=dc143c&label=pawsumm+ppl&style=for-the-badge)
